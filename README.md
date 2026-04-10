@@ -4,6 +4,7 @@
 Traditional wealth is a **Legacy System**. It is slow, prone to "maintenance accidents," and anchored in the physical world. **Gain Keytomatisme** introduces a new asset class: **Strategic Tokenized Consciousness.**
 While the 1% are busy managing their portfolios, the **Keytomatists** are managing the *math* that manages the world. This book isn't about making money; it's about mastering the **Force of Gravity** that dictates where money flows in a co-piloted AI future.
 ### 🏛️ For the Elite (The Board Members)
+##  🧭 https://reimain.github.io/
 You feel the "zero-trust" environment encroaching. You sense that your "patronal click" is losing its resonance. This book provides the **Settings** followed by the co-founder elites:
  * **Legacy Coexistence:** How to maintain your current power structures while evolving through prolonged AI maintenance.
  * **The Board Routine:** Transforming qualitative HR management into a mathematical predictive model.
